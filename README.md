@@ -1,0 +1,1 @@
+# RIN-ficha-de-personagem
